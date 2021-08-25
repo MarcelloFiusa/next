@@ -10,3 +10,4 @@ Olá, eu sou o Marcello Fiusa, sou engenheiro civil de formação e aluno do cur
 * sou gay :)
 * tenho um namorado
 * amor demais minha cachorrinha amora
+* amo meus amigos d++
